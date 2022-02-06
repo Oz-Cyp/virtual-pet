@@ -1,0 +1,1 @@
+This virtual pet is gonna be the most amazing one in the world.
